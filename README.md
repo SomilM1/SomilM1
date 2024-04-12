@@ -1,7 +1,7 @@
 - 👋 Hi, I’m SomilM1 i am a part of the ERROR FOUNDATION
 - 🌱 I’m currently learning Intermediate Javascript
 - 🫱🫲 I’m looking to collaborate on a website with better minds
-- 📫 How to reach me Im going to add a discord not right now
+- 📫 How to reach me Discord server: [a link](https://discord.gg/5Xbkx27XjF))
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: uh mcdonalds is cool
 
